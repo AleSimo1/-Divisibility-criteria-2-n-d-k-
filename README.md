@@ -1,0 +1,1 @@
+# -Divisibility-criteria-2-n-d-k-
